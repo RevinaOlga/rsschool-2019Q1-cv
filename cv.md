@@ -2,8 +2,9 @@
 ### Olga Revina
 
 #### Contacts
-Phone: +37525 761 78 85
-E-mail:  revina.volga@gmail.com
+**Phone:** +37525 761 78 85
+
+**E-mail:**  revina.volga@gmail.com
 
 #### Summery
 - An engineer with high energy, passion and hungry ambitious attitude with a thirst to learn and apply that knowledge on any and all projects assigned
